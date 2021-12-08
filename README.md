@@ -1,0 +1,2 @@
+# memek-samp
+BANTAI POKONAMAH
